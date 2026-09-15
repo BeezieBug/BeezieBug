@@ -1,4 +1,13 @@
-## Hi there 👋
+# OFFICIAL HONEY BLOOM ACCOUNT . (also a spam account.)
+
+
+## `` we host everyday . unless I'm(beez) busy. ``
+
+ . if your included in the discord server. whisper me if you have any questions. I'm available in hangouts, labs and docks. sometimes beside the spawn.
+
+ ( ( I'm beez your worker-in-charge and also a bee enthusiast ! ))
+
+ 
 
 <!--
 **BeezieBug/BeezieBug** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
