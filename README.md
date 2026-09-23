@@ -9,7 +9,4 @@
 ![image alt](Untitled37_20260919162130.png
 
 
-# DRAWING FOR COMMISSION.
-# MY ARTSYLE
-![image alt](IMG20260923132046.jpg)
 
