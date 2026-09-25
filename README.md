@@ -6,7 +6,5 @@
 ( — Caretaker — )
 
 *before you interact*
-![image alt](Untitled37_20260919162130.png
-
 
 
