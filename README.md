@@ -6,7 +6,8 @@
 <details>
 <summary>⭐ Byi</summary>
 
-⭐ please reminder that I'm self-diagnosed with ADHD and autism, ime very sensitive to crack ships about eunoia and other fictkins of mine! I'm soft sharing yume! please iwec with me if I barely know you, I'd love to interact but you have to interact with me first since I'm not that type of person who speaks first. also if you don't chat me to much I will slowly forget about you, do NOT vent on me instantly. I'm your friend not your personal therapist ⭐
+<span style="color:#2c9499">⭐ please reminder that I'm self-diagnosed with ADHD and autism, ime very sensitive to crack ships about eunoia and other fictkins of mine! I'm soft sharing yume! please iwec with me if I barely know you, I'd love to interact but you have to interact with me first since I'm not that type of person who speaks first. also if you don't chat me to much I will slowly forget about you, do NOT vent on me instantly. I'm your friend not your personal therapist ⭐</span>
+
 
 
 
