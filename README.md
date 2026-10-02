@@ -32,6 +32,12 @@ Eunoia #1 fan
 <details>
 <summary>⭐ interests</summary>
 
+ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
+
+Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Impact . Vocaloid . PjSk . Umamusume . AlienStage . McYt . GoofyGang . Die Of Death . Grace . Doors . Mr.Hopps Play house . Others . more.
+
+☾⋆. 𐙚 ˚𓊆ྀི❤︎𓊇⋆. 𐙚 ̊☽ 
+
 
 </details>
 
