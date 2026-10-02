@@ -7,12 +7,7 @@
 <summary>⭐ Byi</summary>
 
 
-$${\color{#2c9499}Please Iwec (It with extra caution) if I don't know you or I barely know you.}$$
-
-$$\color{#00FF00}\text{like making friends but I usually don't speak up first, so it might be very awkward when it silent, but that doesn't mean I don't like you! I'm just not good at speaking first-.}$$
-
-
-$$\color{#00FF00}\text{English is not my first language so please reminder that My words can be a little bit weird to pronounce, hope yall understand.}$$
+$\color{rgb,0.172,0.580,0.600}{\text{⭐ please reminder that I'm self-diagnosed with ADHD and autism, ime very sensitive to crack ships about eunoia and other fictkins of mine! I'm soft sharing yume! please iwec with me if I barely know you, I'd love to interact but you have to interact with me first since I'm not that type of person who speaks first. also if you don't chat me to much I will slowly forget about you, do NOT vent on me instantly. I'm your friend not your personal therapist ⭐}}$
 
 
 
