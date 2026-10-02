@@ -7,7 +7,7 @@
 <summary>⭐ Byi</summary>
 
 
-$\color{rgb,0.172,0.580,0.600}{\text{⭐ please reminder that I'm self-diagnosed with ADHD and autism, ime very sensitive to crack ships about eunoia and other fictkins of mine! I'm soft sharing yume! please iwec with me if I barely know you, I'd love to interact but you have to interact with me first since I'm not that type of person who speaks first. also if you don't chat me to much I will slowly forget about you, do NOT vent on me instantly. I'm your friend not your personal therapist ⭐}}$
+
 
 
 
@@ -17,5 +17,28 @@ $\color{rgb,0.172,0.580,0.600}{\text{⭐ please reminder that I'm self-diagnosed
 <details>
 <summary>⭐ interests</summary>
 
+
+</details>
+
+<details>
+<summary>meanings of the abbreviations you see in statuses:</summary>
+
+
+⟢ int = interact
+⟢ oti = okay to interact
+⟢ piu = please interact
+⟢ ati = ask to interact
+⟢ dni = do not interact
+⟢ dniuc = do not interact unless close
+⟢ dniu = do not interact unless (list names/initials after)
+⟢ dniuid = do not interact unless i do
+⟢ dniic = do not interact if close
+⟢ bgwi = be gentle when interacting
+⟢ begwi = be extremely gentle when interacting
+⟢ iwc = interact with care/caution
+⟢ iwec = interact with extreme care/caution
+⟢ aiwc = always interact with care/caution
+⟢ aiwec = always interact with extreme care/caution
+⟢ iayor = interact at your own risk
 
 </details>
