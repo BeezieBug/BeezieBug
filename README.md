@@ -1,5 +1,9 @@
 ![image alt](𖹭.gif)
 
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&duration=3000&pause=1000&color=3A96AB&center=true&vCenter=true&width=600&lines=Your+here.;Welcome+to+my+shop.;Come%2C+The+investigator+is+finding+you.;I+have+goods%2C+approach+and+buy+one.;I+don't+bite." alt="Typing SVG" />
+</p>
+
 
 ![image alt](Untitled42_20261001204852.png)
 
