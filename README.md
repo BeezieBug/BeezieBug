@@ -6,9 +6,24 @@
 <details>
 <summary>⭐ Byi</summary>
 
+ֺּׅ𓏽⑅ — Please Int with Extreme caution if I barely know you, Since I'm not very good around unfamiliar people. I'd love to talk with you but Kindly start the Convo first since I don't know how to start one .. ༎ຶ⁠‿⁠༎ຶ
 
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
+I focus on entirely my fandoms, You may share yours I might be interested in one of them! 
 
+⋮ ⌗ ┆
+
+The more I get to know you, the more I get clingy and energetic around lol. I'm basically a ambivert . 
+⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+absolutely interested in drawings and I'm heavily offtab . w2i when My title has offtab. thank you! 
+
+ㅤㅤ  ‎ ‎ 　
+⠀⠀ ㅤㅤ  ֯ ⠀        𓏼      疼爱⠀ ც ݃ ᣟ
+⠀⠀ ㅤㅤ  __⁰⁰ __       ♡♡  ݁     e     
+⠀ ⠀⠀ ㅤ
+
+Eunoia #1 fan 
 
 
 
@@ -21,7 +36,7 @@
 </details>
 
 <details>
-<summary>meanings of the abbreviations you see in statuses:</summary>
+<summary>meanings of the abbreviations you see in statuses</summary>
 
 
 ⟢ int = interact
