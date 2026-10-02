@@ -7,7 +7,7 @@
 <summary>⭐ Byi</summary>
 
 
-$${\color{2c9499}This text is red!}$$
+$${\color{#2c9499}This text is red!}$$
 
 
 
