@@ -83,7 +83,9 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 ![image alt](blinkiesCafe-Xt.gif)
 ![image alt](blinkiesCafe-p1.gif)
 ![image alt](blinkiesCafe-lX.gif)
-
+![image alt](blinkiesCafe-fI.gif)
+![image alt](blinkiesCafe-1T.gif)
+![image alt](blinkiesCafe-bz.gif)
 
 
 
