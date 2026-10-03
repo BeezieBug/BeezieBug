@@ -69,7 +69,6 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 
 </details>
 
-![image alt](Untitled31_20260918135925.png)
 
 <details>
 <summary>Blinkies</summary>
@@ -77,7 +76,10 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 ![image alt](blinkiesCafe-77.gif)
 ![image alt](blinkiesCafe-mN.gif)
 ![image alt](blinkiesCafe-Hg.gif)
-
+![image alt](blinkiesCafe-Pz.gif)
+![image alt](blinkiesCafe-Pm.gif)
+![image alt](blinkiesCafe-Qu.gif)
+![image alt](blinkiesCafe-QJ.gif)
 
 
 
@@ -90,3 +92,5 @@ Interested In : DreamGame . Forsaken . Law Of Talos . MLBB . Aphmau . Genshin Im
 
 
 </details>
+
+![image alt](Untitled31_20260918135925.png)
